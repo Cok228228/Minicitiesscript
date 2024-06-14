@@ -1,2 +1,0 @@
-# Minicitiesscript
-Gg
